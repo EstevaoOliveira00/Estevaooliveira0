@@ -5,7 +5,7 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - ### Você pode entrar em contato comigo 📫
 
-joao.casula@escola.pr.gov.br @Baratella
+oliveira.silva.estevao@escola.pr.gov.br @Oliveira
 
 
 ![](https://media1.tenor.com/m/GqOoWCxt5DEAAAAC/fast-car.gif)
